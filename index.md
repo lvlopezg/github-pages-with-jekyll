@@ -1,3 +1,6 @@
-# Welcome to my blog
+# Bienvenidos a este Blog
 
-I'm glad you are here. I plan to talk about ...
+Esperamos sea de utilidad y estaremos atentos y gustosos de recibir sus aportes.
+Se busca lograr una mejor actividad de colaboracion enter todos los Integrantes.
+
+Cualquier informacion puede ser solicitada.
